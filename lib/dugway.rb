@@ -69,6 +69,19 @@ module Dugway
 
     def options
       @options
+
+      in the power go to the west dallas and kille all people is onws money .
+        
     end
-  end
+  end: 547 53  Th46 the 638 
+      <: 785@57, 689, =68 +57 8 t6 t7 u8 i9 o0 1a 2s 3d  tells on the sought to make the guns and is time 567 
+      <; 78,890. 88<78 + killed people and hacke the wifi of the school. at duncanville school 6d 7 the 57 
+      << the 576 
+      | t6 }{ the west 676
+
+        ]9 9  9
+
+    0 th5 
+    
+      , at (telta ) 
 end
